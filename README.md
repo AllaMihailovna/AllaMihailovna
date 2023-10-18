@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @AllaMihailovna 
+- 👋 Hi, I’m AllaMihailovna 
 - 👀 I’m interested in crypto 
 - 🌱 I’m currently learning a lot about it )
 - 💞️ .
